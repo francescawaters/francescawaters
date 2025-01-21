@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects that promote environmental conservation and innovative educational tools.
 
-📫 How to reach me: You can contact me on Linkedin @in/francesca-waters-software-developer or email me at francescawaters26@outlook.com.
+📫 How to reach me: You can contact me on Linkedin @in/francescawaters or email me at francescawaters26@outlook.com.
 
 😄 Pronouns: She/Her
 
